@@ -30,8 +30,8 @@ Estamos aqui para ajudar sua empresa a prosperar no mundo digital, fornecendo so
 
 Para mais informações sobre nossos serviços ou para discutir como podemos ajudar sua empresa, entre em contato conosco:
 
-- **Email**: [contato@nexgensolutions.com](mailto:comercial@nexgensolutions.com.br)
-- **Telefone**: +55 (11) 1234-5678
+- **Email**: [comercial@nexgensolutions.com.br](mailto:comercial@nexgensolutions.com.br)
+- **Telefone**: +55 (41) 98433-5936
 - **Website**: [nexgensolutions.com.br](https://nexgensolutions.com.br/)
 
 Siga-nos nas redes sociais para atualizações e novidades:
